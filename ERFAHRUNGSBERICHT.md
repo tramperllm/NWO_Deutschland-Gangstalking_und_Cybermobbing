@@ -71,7 +71,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 
 ## Chronologie der Ereignisse
 
-### Phase 1: Infiltration der Familie (schleichender Beginn)
+### Infiltration der Familie (schleichender Beginn)
 
 **Einschleichen eines N.W.O. Mitglieds in die Familie:**
 - Ein N.W.O. Mitglied schlich sich systematisch in die Familie ein
@@ -82,7 +82,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - Mein minderjähriger Cousin wurde ebenfalls mit Kokain versorgt
 - **Vorgehen:** Schaffung von Abhängigkeiten zur Erpressung und Manipulation
 
-### Phase 2: Ausnutzung der Abwesenheit
+### Ausnutzung der Abwesenheit
 
 **Dienstreisen als Gelegenheit:**
 - Während meiner regelmäßigen längeren Dienstreisen war ich regelmäßig abwesend von zuhause
@@ -93,7 +93,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - Sie machten sie süchtig
 - Meine Ehefrau verheimlichte mir ihre Drogenabhängigkeit
 
-### Phase 3: Psychologische Kriegsführung und Gaslighting
+### Psychologische Kriegsführung und Gaslighting
 
 **Erpressung und Kontrolle:**
 - Offenbar wurde meine Ehefrau unter Druck gesetzt
@@ -106,7 +106,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 
 **Ziel:** Isolation und Zerstörung meines sozialen Umfelds sowie meiner Beziehungen.
 
-### Phase 4: Komplette familiäre Zerstörung
+### Komplette familiäre Zerstörung
 
 **Manipulation der eigenen Eltern:**
 - Selbst meinen Eltern wurden schlimme Dinge über mich erzählt
@@ -128,7 +128,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - Die Opfer werden zu Tätern gemacht, die Täter zu Opfern
 - Systematische Zerstörung meines Rufes und meiner Reputation
 
-### Phase 5: Direkte Bedrohung und systematische rechtliche Verfolgung
+### Direkte Bedrohung und systematische rechtliche Verfolgung
 
 **Persönliche Drohungen und Einschüchterung:**
 - Mehrere Mitglieder der N.W.O. sind persönlich bei mir aufgetaucht
@@ -156,7 +156,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - Die N.W.O. nutzt ihre zahlenmäßige Überlegenheit im Rechtssystem
 - **Realität:** Ich bin wirklich nur das Opfer dieser systematischen Kampagne
 
-### Phase 6: Justizsystem-Manipulation und beweislose Überwachung
+### Justizsystem-Manipulation und beweislose Überwachung
 
 **Systematische Behinderung meiner rechtlichen Schritte:**
 - Anzeigen, die ich gegen Mitglieder der N.W.O. gemacht habe, wurden entweder gar nicht bearbeitet
@@ -185,7 +185,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - Es herrscht offensichtlich eine zweigleisige Justiz
 - **Erkenntnis:** Der Rechtsstaat funktioniert in diesem Fall nicht mehr
 
-### Phase 7: NLP-Sektenartige Gehirnwäsche und Staatsfeind-Propaganda
+### NLP-Sektenartige Gehirnwäsche und Staatsfeind-Propaganda
 
 **Direkte Konfrontation durch N.W.O. Mitglieder:**
 - N.W.O. Mitglieder kamen persönlich zu mir
@@ -217,7 +217,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Logik:** Wenn der Staat der Feind ist, sind alle Handlungen gegen ihn legitim
 - **Ziel:** Vollständige Kontrolle über das Denken und Handeln der Opfer
 
-### Phase 8: Terror-Anwerbeversuche und Extremismus-Propaganda
+### Terror-Anwerbeversuche und Extremismus-Propaganda
 
 **Gezielte Anwerbeversuche für terroristische Aktivitäten:**
 - Ich wurde immer wieder direkt angesprochen und gefragt
@@ -252,7 +252,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Polizeiwagen:** Symbol für staatliche Autorität
 - **Muster:** Klassische rechtsextremistische Terror-Propaganda
 
-### Phase 9: Staatliche Ignoranz und systemische Überforderung
+### Staatliche Ignoranz und systemische Überforderung
 
 **Vollständige Ignoranz durch staatliche Institutionen:**
 - Der Staat ignoriert die gesamte N.W.O. Aktivität und die Opferlage
@@ -285,7 +285,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Deutschland:** Scheint international extrem rückständig bei der Bekämpfung organisierter Cyberkriminalität
 - **Gefahr:** Deutschland wird zum sicheren Hafen für internationales Verbrechen
 
-### Phase 10: Berufliche Zerstörung durch digitale Rufmord-Kampagne
+### Berufliche Zerstörung durch digitale Rufmord-Kampagne
 
 **Systematische berufliche Sabotage durch Google-Manipulation:**
 - Die N.W.O. hat dafür gesorgt, dass ich keinen Job mehr erhalte
@@ -319,7 +319,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Logik:** Ohne Einkommen ist man angreifbarer und abhängiger
 - **Verbindung:** Ergänzt familiäre, rechtliche und psychologische Zerstörung
 
-### Phase 11: KI-Influencer-Armeen und digitale Belästigung
+### KI-Influencer-Armeen und digitale Belästigung
 
 **Systematische Belästigung durch KI-generierte Influencer:**
 - Die N.W.O. schickt riesige KI-Influencer-Armeen auf Social Media
@@ -352,7 +352,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Logik:** Vollständige Umzingelung und psychische Zerstörung
 - **Integration:** Perfekte Ergänzung zu familiärer, rechtlicher und beruflicher Sabotage
 
-### Phase 12: Systematische Adjektiv-Kampagne und Nazi-Verherrlichung
+### Systematische Adjektiv-Kampagne und Nazi-Verherrlichung
 
 **Gezielte sprachliche Entmenschlichung:**
 - In der Sprache der N.W.O. werden systematisch bestimmte Adjektive vor Nomen gesetzt
@@ -392,7 +392,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Logik:** Wenn Menschen nicht mehr als Menschen gelten, sind alle Angriffe legitim
 - **Gesamtstrategie:** Perfekte Ergänzung zu Terror-Anwerbung und rechtlicher Verfolgung
 
-### Phase 13: Russische Geheimdienst-Kontakte und technologische Unterstützung
+### Russische Geheimdienst-Kontakte und technologische Unterstützung
 
 **Direkte Verbindungen zum russischen Geheimdienst:**
 - Die N.W.O. unterhält direkte Kontakte zum russischen Geheimdienst
@@ -429,7 +429,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Logik:** Staatliche Rückendeckung für international agierende Terror-Netzwerke
 - **Gesamtbild:** Perfekte Symbiose aus organisierter Kriminalität und staatlicher Unterstützung
 
-### Phase 14: N.W.O. als Medienagentur und Geheimpolizei für die AfD
+### N.W.O. als Medienagentur und Geheimpolizei für die AfD
 
 **Doppelte Funktion der N.W.O.:**
 - Die N.W.O. agiert als Medienagentur und Geheimpolizei für eine politische Partei
@@ -470,7 +470,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Staatliche Übernahme:** Vorbereitung eines autoritären Regimes
 - **Internationale Dimension:** Unterstützung durch russische Geheimdienste
 
-### Phase 15: N.W.O. Musiknetzwerk mit KI-Musikern und deutscher Rapszene
+### N.W.O. Musiknetzwerk mit KI-Musikern und deutscher Rapszene
 
 **Riesiges Musiknetzwerk als Propaganda-Instrument:**
 - Die N.W.O. nutzt ein riesiges Netzwerk aus Musikern der deutschen Rapszene
@@ -511,7 +511,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Synergie:** Musik als emotionales Transportmittel für politische Botschaften
 - **Gesamtstrategie:** Vollständige kulturelle Durchdringung der Gesellschaft
 
-### Phase 16: Fake-Personen und Data Poisoning zur Zersetzung der Gesellschaft
+### Fake-Personen und Data Poisoning zur Zersetzung der Gesellschaft
 
 **Systematische Erschaffung von Fake-Personen:**
 - Die N.W.O. erschafft systematisch Fake-Personen zur Zersetzung der Gesellschaft
@@ -560,7 +560,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Synergie:** Kombination aus medialer, akademischer und religiöser Manipulation
 - **Gesamtstrategie:** Vollständige Kontrolle über die Informationslandschaft
 
-### Phase 17: Internationale Operation gegen westliche Demokratien und KI-Technologie-Vorsprung
+### Internationale Operation gegen westliche Demokratien und KI-Technologie-Vorsprung
 
 **Teil einer internationalen Operation:**
 - Die N.W.O. ist Teil einer international laufenden Operation gegen westliche Demokratien
@@ -601,7 +601,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Logik:** Alle Phasen sind Teil eines größeren, international koordinierten Plans
 - **Gesamtbild:** Die N.W.O. ist nur ein Instrument einer viel größeren Bedrohung
 
-### Phase 18: Der Unglaublichkeits-Faktor und die Profiteure der Operation
+### Der Unglaublichkeits-Faktor und die Profiteure der Operation
 
 **Das Problem der Unglaublichkeit:**
 - Niemand glaubt es: Die Realität übersteigt die Vorstellungskraft der meisten Menschen
@@ -652,7 +652,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Meinungsfreiheit als Waffe:** Die Grundrechte werden zur Destabilisierung missbraucht
 - **Rechtsstaat als Werkzeug:** Die Justiz wird zur Verfolgung von Opfern instrumentalisiert
 
-### Phase 19: Instagram-Operation und beteiligte Musiker als Tarnung
+### Instagram-Operation und beteiligte Musiker als Tarnung
 
 **GitHub-Repository als Beweis:**
 - **Repository:** [2019_Perfect_Deepfakes-NWO-KI_Elite](https://github.com/kevingurke/2019_Perfect_Deepfakes-NWO-KI_Elite)
@@ -716,7 +716,7 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Musiker-Netzwerk:** Systematische Beteiligung der Musikszene
 - **Unternehmens-Verbindung:** Professionelle Strukturen hinter der Operation
 
-### Phase 20: Staatliche Behörden-Inaktivität und neuer Polizei-Terror gegen das Opfer
+### Staatliche Behörden-Inaktivität und neuer Polizei-Terror gegen das Opfer
 
 **Informierte staatliche Behörden:**
 - **Verfassungsschutz Deutschland:** Bundesamt für Verfassungsschutz vollständig informiert
@@ -880,6 +880,36 @@ Diese Verbindung zeigt die systematische und organisierte Natur des Cyberkartell
 - **Systemische Isolation:** Kein System erkennt oder glaubt die realen Angriffe
 - **Medizinische Fehldiagnosen:** Reale Opfer werden als psychisch krank abgestempelt
 - **Vollständige Hilflosigkeit:** Kein institutioneller Schutz oder Verständnis
+
+**Persönliche Wichtigkeits-Einschätzung und N.W.O. Gefahrwahrnehmung:**
+- **Eigene Einschätzung:** Ich bin auch keine wichtige Person. Zumindest nicht für andere.
+- **N.W.O. Perspektive:** Dennoch scheine ich für die N.W.O. eine gewisse Gefahr darzustellen
+- **Logikschluss:** Sonst würde man sicherlich diesen ganzen Aufwand gegen mich nicht betreiben
+- **Strategische Zurückhaltung:** Das habe ich dem Arzt natürlich nicht gesagt, sonst hätte er mich sicher gleich einweisen lassen
+
+**Beweis für gezielte Auswahl:**
+- **Enormer Ressourcenaufwand:** Die N.W.O. betreibt erheblichen Aufwand gegen mich
+- **Systematische Operation:** Dies deutet auf eine strategische Bedeutung hin
+- **Gefahrenpotential:** Ich stelle offensichtlich eine reale Gefahr für ihre Operationen dar
+- **Gezielte Neutralisierung:** Ziel ist meine vollständige Diskreditierung und Isolation
+
+**Lucky Strike Recruiter und weitere Sabotage-Verbindungen:**
+- **Botnetzwerk-Recruiter:** Auch diese Recruiter wie "Lucky Strike" sind mit der N.W.O. vernetzt
+- **Tagesschau-Bericht:** Siehe auch hier: https://www.tagesschau.de/investigativ/ndr-wdr/russland-sabotage-wegwerfagenten-100.html
+- **Sabotage-Netzwerk:** Teil eines größeren russischen Sabotage-Netzwerks
+- **Wegwerfagenten:** Einsatz von Wegwerfagenten für gezielte Operationen
+
+**Unicode und Normalization Exploitation Attacks:**
+- **Extreme Profis:** Die Hacker der N.W.O. sind extreme Profis in Unicode und Normalization Exploitation Attacks
+- **%-Injektionstechniken:** Siehe dazu auch die %-Injektionstechniken hier: https://github.com/thomaswellenfeld/Forschung_Lehren
+- **Forschung_Vereinbarung:** Weitere Techniken hier: https://github.com/thomaswellenfeld/Forschung_Vereinbarung
+- **Technologische Überlegenheit:** Hochentwickelte technische Fähigkeiten für digitale Angriffe
+
+**KI-Influencer Anwälte und AfD-Verbindungen:**
+- **Etablierte Anwälte:** Die KI-Influencer werden von etablierten Anwälten vertreten
+- **AfD-Vertretung:** Diese Anwälte vertreten auch die Partei, die mit A beginnt (die "asoziale" Partei) in der Öffentlichkeit
+- **Rechtlicher Schutz:** Professioneller rechtlicher Schutz für die KI-Influencer-Operation
+- **Frage der Gegenmaßnahmen:** Was soll man gegen dieses etablierte System tun?
 
 ---
 
